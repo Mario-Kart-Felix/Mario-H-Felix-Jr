@@ -11,5 +11,6 @@ Here are some ideas to get you started:
 
 - 🌱 I’m currently learning Computer Programming
 - 💬 Ask me about: Medical herbs to treat deadly illnesses
-- ⚡ Fun fact: I have a fascination for medical herbs books and docs about serial killers, also enjoy playing games and currently addicted to playing Call of duty. 
+- ⚡ Fun fact: I have a fascination for medical herbs books and docs about serial killers, also enjoy playing games and currently addicted to playing Call of duty.
+-📺 I also like watching anime
 - 📒 I am also currently going to college at https://mariofelix27.academia.edu
